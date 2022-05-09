@@ -2,4 +2,4 @@
 
 Be sure to see the rest of my work on my: [Website](https://devindavis5.github.io/) | [LinkedIn](https://www.linkedin.com/in/devinrdavis) | [Blog](https://devindavisdev.medium.com/) | [Email](mailto:devinrsanford@gmail.com)
 
-Thanks for stopping by! 😁
+Thanks for stopping by!
